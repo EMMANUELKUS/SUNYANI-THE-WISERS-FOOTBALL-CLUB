@@ -15,4 +15,4 @@ Manager of the club MR OWUSU YEBOAH
 Coach of the club Osman Ramzy populary known as Senior
 
 
-Sunyani The Wisers Football Club which was then known as Ayim Stuggatta Academy, is a second division club base in berekum, the club was formed in 2014 by Mr Owusu Yeboah a ghanaian but lives in germany. The started as third division team. The team then played in the third division league in bereklum and qualified to second division and has been participating and doing well in the seciond division league in berekum.
+Sunyani The Wisers Football Club which was then known as Ayim Stuggatta Academy, is a second division club base in berekum, the club was formed in 2014 by Mr Owusu Yeboah a ghanaian but lives in germany. They started as third division team. The team then played in the third division league in bereklum and qualified to second division and has been participating and doing well in the second division league in berekum.
