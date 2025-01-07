@@ -9,3 +9,10 @@ Sunyani The Wisers Football Club
 Manager of the club MR OWUSU YEBOAH
 
 [Sunyani The Wisers Football Club Tiktok Videos](https://www.tiktok.com/@sunyanithewisers_2014?_t=8qFH2jIJ2jm&_r=1&ug_btm=b8727,b0&sec_user_id=MS4wLjABAAAAAB3l1Kgnaj5m2sDUN7u8tYioP6OGvzEfxWD11Ue7nI_8KP12lZt5Vz2hs603giiI&utm_source=whatsapp&social_share_type=5&utm_campaign=client_share&utm_medium=ios&tt_from=whatsapp&user_id=6780299777693189126&enable_checksum=1&share_link_id=E0816619-1FB4-4EF4-9DAE-6302AAD1C139&share_app_id=1233)
+
+![Coach of the club](3257ca97-0fc2-445c-9c4a-2bbd682dcdca.jpeg)
+
+Coach of the club Osman Ramzy populary known as Senior
+
+
+Sunyani The Wisers Football Club which was then known as Ayim Stuggatta Academy, is a second division club base in berekum, the club was formed in 2014 by Mr Owusu Yeboah a ghanaian but lives in germany. The started as third division team. The team then played in the third division league in bereklum and qualified to second division and has been participating and doing well in the seciond division league in berekum.
